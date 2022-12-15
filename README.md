@@ -10,8 +10,10 @@
 
 🌘 ✎ INTS!!!! inscryption!!! pony island, ToR:D, roblox, yttd!!!! terraria, faith, stardew valley, msm, ava/avm, monster prom, osc [onehfj, bfdi, ii, orb]u can whisper 2 interact!! i wont usually reply since im off tab alot !
 
+OTHERS ! PONYTOWN RELATED ;;
+
 🦇 ✎ u can interact!! though i might not respond since im not good at talking to people . i apologize in advanced !!..
 
-🌘 ✎ im offtab mostly ! at times i may just be watching things happen
+🌘 ✎ im offtab mostly ! at times i may just be watching things happen . 
 
-🦇 ✎  currently remaking my carrd! 
+🦇 ✎  u can cuddle/hide ! i dont mind getting covered as well, though i may move if i do get covered
