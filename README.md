@@ -12,6 +12,6 @@
 
 🦇 ✎ u can interact!! though i might not respond since im not good at talking to people . i apologize in advanced !!..
 
-🌘 ✎ i dont have tt/touch trigger or td/touch discomfort ! i dont mind it honestly :D
+🌘 ✎ im offtab mostly ! at times i may just be watching things happen
 
 🦇 ✎  currently remaking my carrd! 
