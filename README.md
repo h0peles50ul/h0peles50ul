@@ -8,7 +8,7 @@
 
 🦇 ✎ dni if; basic dni criteria, under 13, pr0shipper/z00phile, drama hungry/toxic
 
-🌘 ✎ NTS!!!! inscryption!!! pony island, ToR:D, roblox, yttd!!!! terraria, faith, stardew valley, msm, ava/avm, monster prom, osc [onehfj, bfdi, ii, orb]u can whisper 2 interact!! i wont usually reply since im off tab alot !
+🌘 ✎ INTS!!!! inscryption!!! pony island, ToR:D, roblox, yttd!!!! terraria, faith, stardew valley, msm, ava/avm, monster prom, osc [onehfj, bfdi, ii, orb]u can whisper 2 interact!! i wont usually reply since im off tab alot !
 
 🦇 ✎ u can interact!! though i might not respond since im not good at talking to people . i apologize in advanced !!..
 
