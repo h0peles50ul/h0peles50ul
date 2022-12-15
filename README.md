@@ -1,16 +1,17 @@
-### Hi there 👋
+৲ ★ HII !!!!!! WELCOME TO MY MESS . ★ ৲
 
-<!--
-**h0peles50ul/h0peles50ul** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![hopeless soul my beloved](https://cdn.discordapp.com/attachments/585766293542666258/1052902552452218931/5C3B9383-A361-493F-8278-AB6808AAAFBD.jpg)
 
-Here are some ideas to get you started:
+🦇 ✎ hi !! my name is wizbat/entity !! but u can call me wiz or bat :3
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🌘 ✎ im a minor ! and i go by he/it/xe/zom/void !! im also agender/gendervoid :D
+
+🦇 ✎ dni if; basic dni criteria, under 13, pr0shipper/z00phile, drama hungry/toxic
+
+🌘 ✎ NTS!!!! inscryption!!! pony island, ToR:D, roblox, yttd!!!! terraria, faith, stardew valley, msm, ava/avm, monster prom, osc [onehfj, bfdi, ii, orb]u can whisper 2 interact!! i wont usually reply since im off tab alot !
+
+🦇 ✎ u can interact!! though i might not respond since im not good at talking to people . i apologize in advanced !!..
+
+🌘 ✎ i dont have tt/touch trigger or td/touch discomfort ! i dont mind it honestly :D
+
+🦇 ✎  currently remaking my carrd! 
