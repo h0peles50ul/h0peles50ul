@@ -4,7 +4,7 @@
 
 🦇 ✎ hi !! my name is wizbat/entity !! but u can call me wiz or bat :3
 
-🌘 ✎ im a minor ! and i go by he/it/xe/zom/void !! im also agender/gendervoid :D
+🌘 ✎ im a minor ! and i go by any pronouns !! im also agender/gendervoid :D
 
 🦇 ✎ dni if; basic dni criteria, under 13, pr0shipper/z00phile, drama hungry/toxic
 
